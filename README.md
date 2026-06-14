@@ -1,4 +1,4 @@
-# Hoomaan Sheikholeslami
+# Hamidreza (Hoomaan) Sheikholeslami
 
 **Frontend Engineering Lead · WordPress, Headless & React · AI-Augmented Teams · Remote**
 
